@@ -5,8 +5,11 @@
 - Having been fatally bamboozled and toxically treated once upon a time, hate co-working but not intensively against it
 - Was an active contributor to Minecraft Wiki (Chinese), now make Modpacks and other stuff of Minecraft for fun, although it's hardly fun
 - Member of [CFPA](https://github.com/CFPAOrg) but don't even know what the hell does that mean
+- Disgusted by males with an anime girl avatar. If that's proved to be just a pic, you got a pass.
 ---
 ```
+MY ANTI-WEEB MANIFESTO
+
 Every single weebs should be gathered and sent to another planet.
 
 Like, why in the name of fark would there be so many male person from my sacred motherland China developing projects and working on Minecraft things, but with Avatar showing a Japanese anime girls in avatars and talking about that Genshin Impact and shit all day long, **AND CHATS ONLINE LIKE A FUCKING ANIME THOT**.
