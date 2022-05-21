@@ -1,8 +1,9 @@
 ### ChromaPIE
 
-#### ZenScript/ZenCode amateur, mod/plugin/wiki stuff translator, modpack creator.
+#### Gamer
 
-- Having been fatally bamboozled and toxically treated once upon a time, hate co-working but not intensively against it
-- Was an active contributor to Minecraft Wiki (Chinese), now make Modpacks and other stuff of Minecraft for fun, although it's hardly fun
-- Was a member of [CFPA](https://github.com/CFPAOrg) but that's a joke
-- Disgusted by males with an anime girl avatar. If that's proved to be just a pic, you got a pass.
+- Playing Minecraft, Apex Legends and seas of games, not an expert though
+- Check out me streaming on [Bilibili](https://live.bilibili.com/354585)
+- Was blah blah blah, once blah blah blah, contributed blah blah blah, not anymore
+- Terminated maintaining anything
+- Pro tip: Quit all communities right now
