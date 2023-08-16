@@ -14,3 +14,5 @@
 - My life's a mess too
 - If you are reading this, hey.
 - Why are you here reading this tho
+
+i'm not QUIT quit i just stop laboring myself.
